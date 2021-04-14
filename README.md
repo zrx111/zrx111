@@ -1,1 +1,1 @@
-A college student studying at JiNan University now.
+A college student in Jinan University(ISSC) now.
